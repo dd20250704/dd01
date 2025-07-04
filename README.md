@@ -16,4 +16,4 @@
 
 此外，简洁界面和清晰分类提升用户体验，支持多设备观看，方便快捷。总结来说，突出平台的合法性、安全性和优质体验，能有效提升排名和用户信任。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](http://github.com/dd20250704/dd01 ）</span>
